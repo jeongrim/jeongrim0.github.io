@@ -1,1 +1,0 @@
-# jeongrim.github.io
